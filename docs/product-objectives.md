@@ -18,7 +18,19 @@ BRANDING: association with visual of relaxation along with possible calming soun
 
 --The Strategy Plane: We are here to provide a service and wish to do our very best to make sure you return.  Need to learn and understand what our customers want and expect from spa services.
 
+SPA BRANDING - Catering to Millennials providing spa/massage services.  
+
+Plan to motive customers by promoting:
+  -Competitive pricing
+  -Incorporate use of online advertising and connecting with our customers personally through emails, text and other social media
+  -Customize our services to clientele requests and needs
+  -Promoting safety and respect to our customers
+  -Use of images of ons-site to help customers invisage using our services
+  -Use of location marketing
+  -Speak of the value of our services in promotion of health and good services
+  -Provide an environment that uses ones senses to be relaxing 
+
 2. List the metrics you will use to measure success at meeting your objectives. (such as increase sales by 20% over next quarter)
 
 --Metrics along with increase in sales over quarterly periods plan to promote "the by mouth" advertising of giving discount to those who have a "friend" show up and mention them by name recommending our services.  
-
+  Use of social network to help sell our services - requests for "friends" to join our social media sites.  
