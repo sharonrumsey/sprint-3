@@ -6,11 +6,15 @@ Location: Rejuvenate Spa Millenial at 51 Freyberg Street, Lyall Bay Wellington
   Google Map:
 
 
-  Website - www.spamillenial.co.nz
+  Website - www.spa-millenial.co.nz
   Facebook:
-  Twitte:
-  Email:
-  Phone:
+  Twitter: @spa-millineial
+  Email: spa-info@millineial.co.nz
+  Phone: 
+
+  Book an appointment online:  link to book appt and if wish select a specific person to provide services
+
+  Want to give the gift of relaxation? - Purchase a gift certificate for a loved one or friend - link
 
 Hours of Operation: 
   Monday to Friday 7AM to 8PM

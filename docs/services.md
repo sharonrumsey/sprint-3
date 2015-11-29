@@ -22,5 +22,5 @@ Our Services:
   Items sold on site - organic products made locally with local ingredients.
 
   Testimonials:
-
+      Sue - happy to return again
   
